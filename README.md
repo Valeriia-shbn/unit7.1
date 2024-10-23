@@ -1,1 +1,1 @@
-![localhost-9999-api-cards 2024-10-23 16-46-01.png](..%2F..%2F..%2FDownloads%2Flocalhost-9999-api-cards%202024-10-23%2016-46-01.png)
+![localhost-9999-api-cards 2024-10-23 16-46-01](https://github.com/user-attachments/assets/cb46b942-2f01-4f83-8b14-c324463fe838)
